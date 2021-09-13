@@ -1,1 +1,1 @@
-# GalaxloveStore
+# Galaxlove
